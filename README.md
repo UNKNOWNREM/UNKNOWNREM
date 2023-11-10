@@ -1,5 +1,5 @@
 # 💫 About Me:
-😶‍🌫️ Favorite： Backend and AIoT<br>🤠 Language： Spanish and English and Chinese<br>
+😶‍🌫️ Favorite： Backend and AIoT<br>🤠 Language： Japanese and English and Chinese<br>
  
 
 ## 🌐 Socials:
